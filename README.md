@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... that
 - 💬 Ask me about ... this
 - 📫 How to reach me: ... there
-- 😄 Pronouns: ... n/a
+- 😄 Pronouns: ... hehehehehehehahahahahahohohohohuhuhuhuahem
 - ⚡ Fun fact: ... n/a
 -->
